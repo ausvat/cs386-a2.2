@@ -1,9 +1,7 @@
-Contributors 
+Contributors
 
 
-Andrew Usvat 
+Andrew Usvat
 Cody Beck
 Bailey McCauslin
-Nick Henderson
-
-
+Nick Henderson - Just here for the ride. I enjoy riding mountain bikes. 
